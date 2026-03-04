@@ -1,1 +1,1 @@
-# ED_Parcial_Gelber_Gerardo_Gonzalez_Rendon
+Enlace video: https://youtu.be/RxdQ6NBdcYQ
